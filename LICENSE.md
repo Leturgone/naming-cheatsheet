@@ -1,4 +1,4 @@
-MIT Licensssse
+MIT Liiiiiii
 
 Copyright (c) 2018—preset Artem Zakharchenko
 
